@@ -1,0 +1,5 @@
+In a pan, take some butter. Cut some thin slices of onions and put it in the pan. Put some salt and pepper. Caramalize the onion for few minutes and put it aside in a plate.
+Then, in a bowl, put shredded chicken with the hot caramalized butter of the pan. Also put some chopped green chillies,paprika,red chilli powder,cumin coriander powder,salt,pepper and some vegetable oil. Marinate well and keep it covered for 2 hours.
+After marination,shape the chicken as a patti and coat it in flour and beaten eggs.Then in a tawa, put some butter and put the chicken patti and also the burger buns. Heat them till cooked.
+Then put mayonese,tomato sauce and hot sauce(optional)on both sides of the burger buns. Put some lettuce, tomatoes and then the chicken patti,melted cheese slice and caramalized onions one upon the other and then in the either way also.
+Serve with french fries, some mayonese and enjoy.
